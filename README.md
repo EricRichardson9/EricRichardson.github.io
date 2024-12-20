@@ -1,1 +1,1 @@
-# EricRichardson.github.io
+# Eric Richardson
